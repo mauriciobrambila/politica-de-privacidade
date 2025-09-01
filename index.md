@@ -16,6 +16,6 @@ Podemos atualizar esta Política de Privacidade a qualquer momento. Recomendamos
 
 6. Contato
 Se você tiver dúvidas sobre esta Política de Privacidade, entre em contato conosco pelo e-mail:
-mauricio.brambila.contato@gmail.com
+mauriciobrambila2015@gmail.com
 
 Obrigado por usar o app Calculador para supermecados!
